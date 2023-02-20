@@ -1,4 +1,4 @@
-Favorite company! Psygnosis (1984 - 1999)
+Favorite company! Psygnosis (1984 - 1999) https://en.wikipedia.org/wiki/Psygnosis
 
 Favorite computer game!
 
