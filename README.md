@@ -1,5 +1,5 @@
 Hi there!
-My name is ![cube](https://user-images.githubusercontent.com/4492652/220165007-92e83e4e-8535-4e18-891d-2cdf57b5900d.gif) Ze'ev ![cube](https://user-images.githubusercontent.com/4492652/220165046-f6054967-7c65-47c4-9a7f-e4729a38eb79.gif) 
+My name is Ze'ev
 I am a Practical Engineer & Full Stack Developer.
 I have uploaded project examples for your enjoyment!
 For more projects i will send a link to my google drive upon request zeev.bb@gmail.com
