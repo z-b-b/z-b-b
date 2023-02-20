@@ -1,4 +1,4 @@
-Psygnosis (1984 - 1999)
+Psygnosis (1984 >> 1999)
 
 To the BBS community: https://www.telnetbbsguide.com/bbs/list/detail/
 
