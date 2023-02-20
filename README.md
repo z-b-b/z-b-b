@@ -1,6 +1,8 @@
-Psygnosis (1984 - 1999)
+Favorite company: Psygnosis (1984 - 1999)
 
-![shadow-of-the-beast](https://user-images.githubusercontent.com/4492652/220133968-6da8c154-e9dc-4b4a-8f05-05f2d524a35c.jpg)
+Favorite computer game:
+
+![R](https://user-images.githubusercontent.com/4492652/220135642-1e77ddd1-8992-4d0d-aa8f-479941f7cc87.png)
 
 
 To the BBS community: https://www.telnetbbsguide.com/bbs/list/detail/  ![woohoo](https://user-images.githubusercontent.com/4492652/220128378-81305ff2-f0ea-44ab-b137-36ea05be3b0e.gif)
