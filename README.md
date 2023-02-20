@@ -2,7 +2,7 @@ Favorite company! Psygnosis (1984 - 1999)
 
 Favorite computer game!
 
-![OIP](https://user-images.githubusercontent.com/4492652/220151869-0ea7c9ea-ec37-4424-9845-5963f9fc90a2.jpg)
+
 
 
 To the BBS community: https://www.telnetbbsguide.com/bbs/list/detail/  ![woohoo](https://user-images.githubusercontent.com/4492652/220128378-81305ff2-f0ea-44ab-b137-36ea05be3b0e.gif)
