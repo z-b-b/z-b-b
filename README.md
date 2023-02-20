@@ -7,4 +7,4 @@ I upload samples projects for your enjoyment!
 For more projects i will send a link to my google drive upon request
 zeev.bb@gmail.com
 
-Psygnosis (1984–1999)
+Psygnosis (1984 - 1999)
