@@ -8,6 +8,7 @@ zeev.bb@gmail.com
 
 My profile in the Apple Support Community: https://discussions.apple.com/profile/Z_B-B/participation
 
+My favorite scripting language for Web pages! JavaScript
 
 My favorite company! Psygnosis (1984 - 1999)
 
