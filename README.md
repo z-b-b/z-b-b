@@ -1,7 +1,6 @@
 Hi there!
 My name is Ze'ev
-I am a Practical Engineer & Full Stack Developer.
-For more projects i will send a link to my google drive upon request zeev.bb@gmail.com
+I am a Practical Engineer & Full Stack Developer. zeev.bb@gmail.com
 
 My profile in the Apple Support Community: https://discussions.apple.com/profile/Z_B-B/participation
 
