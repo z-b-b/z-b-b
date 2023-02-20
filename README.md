@@ -1,11 +1,13 @@
-Favorite company! Psygnosis (1984 - 1999) https://en.wikipedia.org/wiki/Psygnosis
+Favorite company! Psygnosis (1984 - 1999)
+
+Favorite website: https://download.cnet.com/
 
 Favorite computer game!
 
 
 
 
-To the BBS community: https://www.telnetbbsguide.com/bbs/list/detail/  ![woohoo](https://user-images.githubusercontent.com/4492652/220128378-81305ff2-f0ea-44ab-b137-36ea05be3b0e.gif)
+BBS community: https://www.telnetbbsguide.com/bbs/list/detail/  ![woohoo](https://user-images.githubusercontent.com/4492652/220128378-81305ff2-f0ea-44ab-b137-36ea05be3b0e.gif)
 
 
 Hi there!
