@@ -1,4 +1,6 @@
-Psygnosis (1984 >> 1999)
+Psygnosis (1984 >> 1999) 
+
+![holiday_lemmings_1993_11](https://user-images.githubusercontent.com/4492652/220133281-83a626d6-ff12-4dfd-8489-887697e8b512.png)
 
 
 To the BBS community: https://www.telnetbbsguide.com/bbs/list/detail/  ![woohoo](https://user-images.githubusercontent.com/4492652/220128378-81305ff2-f0ea-44ab-b137-36ea05be3b0e.gif)
