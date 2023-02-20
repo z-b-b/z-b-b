@@ -18,3 +18,5 @@ I upload samples projects for your enjoyment!
 
 For more projects i will send a link to my google drive upon request
 zeev.bb@gmail.com
+
+My profile in the Apple Support Community: https://discussions.apple.com/profile/Z_B-B/participation
