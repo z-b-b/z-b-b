@@ -1,4 +1,4 @@
-Psygnosis (1984 >> 1999)
+Psygnosis (1984 - 1999)
 
 ![shadow-of-the-beast](https://user-images.githubusercontent.com/4492652/220133968-6da8c154-e9dc-4b4a-8f05-05f2d524a35c.jpg)
 
