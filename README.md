@@ -1,6 +1,6 @@
-Psygnosis (1984 >> 1999) 
+Psygnosis (1984 >> 1999)
 
-![holiday_lemmings_1993_11](https://user-images.githubusercontent.com/4492652/220133281-83a626d6-ff12-4dfd-8489-887697e8b512.png)
+![shadow-of-the-beast](https://user-images.githubusercontent.com/4492652/220133968-6da8c154-e9dc-4b4a-8f05-05f2d524a35c.jpg)
 
 
 To the BBS community: https://www.telnetbbsguide.com/bbs/list/detail/  ![woohoo](https://user-images.githubusercontent.com/4492652/220128378-81305ff2-f0ea-44ab-b137-36ea05be3b0e.gif)
