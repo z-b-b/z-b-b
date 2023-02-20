@@ -11,7 +11,7 @@ My profile in the Apple Support Community: https://discussions.apple.com/profile
 
 My favorite company! Psygnosis (1984 - 1999)
 
-My favorite website: https://download.cnet.com/
+My favorite website: https://www.lemonamiga.com/
 
 My favorite computer game! SteamWorld Heist
 
