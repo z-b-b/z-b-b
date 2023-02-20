@@ -6,9 +6,9 @@ For more projects i will send a link to my google drive upon request zeev.bb@gma
 
 My profile in the Apple Support Community: https://discussions.apple.com/profile/Z_B-B/participation
 
-My favorite scripting language for Web pages! JavaScript
+My favorite scripting language for web pages! JavaScript
 
-My favorite company! Psygnosis (1984 - 1999)
+My favorite video games company! Psygnosis (1984 - 1999)
 
 My favorite website: https://www.lemonamiga.com/
 
