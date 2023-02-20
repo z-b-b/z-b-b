@@ -1,6 +1,6 @@
-Psygnosis (1984 >> 1999)
+Psygnosis (1984 >> 1999) ![banana](https://user-images.githubusercontent.com/4492652/220127815-d4e838a1-a998-4afd-9331-2da3057c9a1b.gif)
 
-To the BBS community: https://www.telnetbbsguide.com/bbs/list/detail/
+To the BBS community: https://www.telnetbbsguide.com/bbs/list/detail/ ![woohoo](https://user-images.githubusercontent.com/4492652/220128378-81305ff2-f0ea-44ab-b137-36ea05be3b0e.gif)
 
 Hi there!
 My name is Ze'ev
