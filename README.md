@@ -1,6 +1,6 @@
-Favorite company: Psygnosis (1984 - 1999)
+Favorite company! Psygnosis (1984 - 1999)
 
-Favorite computer game:
+Favorite computer game!
 
 ![R](https://user-images.githubusercontent.com/4492652/220135642-1e77ddd1-8992-4d0d-aa8f-479941f7cc87.png)
 
